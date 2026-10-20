@@ -23,3 +23,5 @@ Not open-licence (commercial pack shots, copyright of the brand or distributor, 
 - Jack Daniel's Old No.7: pack shot from Nicks Wine Merchants (AU), copyright holder unconfirmed.
 - Olmeca Silver: pack shot from LWC catalogue, copyright of the brand owner (Pernod Ricard).
 - Троянска ракия Резерва 12 г.: pack shot from Vinprom Troyan's own site, copyright Vinprom Troyan. Permission not yet asked.
+- Levent Cabernet Sauvignon: pack shot from whiskystore.bg (retailer), copyright holder unconfirmed.
+- Captain Morgan Dark Rum: pack shot from The Bottle Club (UK retailer), copyright of the brand owner (Diageo) or retailer.
