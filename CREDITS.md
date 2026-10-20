@@ -17,3 +17,9 @@ BY-SA 4.0/3.0/2.0 covers the background-removed derivative: credit must name the
 - Rémy Martin VSOP: "Rémy Martin VSOP.jpg" by SKopp, CC BY 4.0, https://commons.wikimedia.org/wiki/File:R%C3%A9my_Martin_VSOP.jpg
 - Disaronno: "Disaronno bottle.jpg" by Sebastian Koppehel, CC BY 4.0, https://commons.wikimedia.org/wiki/File:Disaronno_bottle.jpg
 - Baileys Original: "Baileys Original Irish Cream Bottle.jpg" by BigBlobfish, CC0 (no credit required, listed for courtesy), https://commons.wikimedia.org/wiki/File:Baileys_Original_Irish_Cream_Bottle.jpg
+
+Not open-licence (commercial pack shots, copyright of the brand or distributor, used pending owner decision on permission). Background removed, cropped.
+
+- Jack Daniel's Old No.7: pack shot from Nicks Wine Merchants (AU), copyright holder unconfirmed.
+- Olmeca Silver: pack shot from LWC catalogue, copyright of the brand owner (Pernod Ricard).
+- Троянска ракия Резерва 12 г.: pack shot from Vinprom Troyan's own site, copyright Vinprom Troyan. Permission not yet asked.
