@@ -25,3 +25,14 @@ Not open-licence (commercial pack shots, copyright of the brand or distributor, 
 - Троянска ракия Резерва 12 г.: pack shot from Vinprom Troyan's own site, copyright Vinprom Troyan. Permission not yet asked.
 - Levent Cabernet Sauvignon: pack shot from whiskystore.bg (retailer), copyright holder unconfirmed.
 - Captain Morgan Dark Rum: pack shot from The Bottle Club (UK retailer), copyright of the brand owner (Diageo) or retailer.
+
+## Photo pilot, 2026-11-06 (background removed, cropped)
+
+- Jameson: "Jameson Irish Whiskey.JPG" by Datenralfi, CC BY-SA 3.0 de, modified, https://commons.wikimedia.org/wiki/File:Jameson_Irish_Whiskey.JPG
+- Absolut: "Absolut Vodka 01.jpg" by Indrajit Das, CC BY-SA 4.0, modified, https://commons.wikimedia.org/wiki/File:Absolut_Vodka_01.jpg
+- Tanqueray: Open Food Facts contributors, CC BY-SA 3.0, modified, https://world.openfoodfacts.org/product/5000281015248
+- Ballantine's Finest: "2017 Ballantine's Finest.jpg" by Jacek Halicki, CC BY-SA 4.0, modified, https://commons.wikimedia.org/wiki/File:2017_Ballantine%27s_Finest.jpg
+- Havana Club Añejo Especial: "2023 Havana Club Añejo Especial (1).jpg" by Jacek Halicki, CC BY-SA 4.0, modified, https://commons.wikimedia.org/wiki/File:2023_Havana_Club_A%C3%B1ejo_Especial_(1).jpg
+- Chivas Regal 12: "Chivas regal 12yo.jpg" by Keeezawa, CC BY-SA 4.0, modified, https://commons.wikimedia.org/wiki/File:Chivas_regal_12yo.jpg
+- Ricard: "Ricard Pastis 01 09.jpg" by Хрюша, CC BY-SA 3.0, modified, https://commons.wikimedia.org/wiki/File:Ricard_Pastis_01_09.jpg
+- Monkey Shoulder: "Monkey Shoulder Whisky.jpg" by DYVER, CC BY-SA 4.0, modified, https://commons.wikimedia.org/wiki/File:Monkey_Shoulder_Whisky.jpg
